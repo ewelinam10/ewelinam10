@@ -38,4 +38,3 @@
 <br />
 
 ##### 📫 How to reach me: ewelinam10@gmail.com
-##### ⚡ Fun fact: I was keen on makeup stuff in my twenties, so both my bachelor's and master's thesis' include this topic. And who said makeup and technologies can't work together ;)?
